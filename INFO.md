@@ -1,3 +1,1 @@
-git is awesome!
-new line
-Hi, my lovely Ukraine!
+Ukraine is Win!
