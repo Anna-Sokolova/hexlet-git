@@ -1,2 +1,2 @@
 Ukraine is Win!
-USA is wonderfull!
+USA is wonderful!
